@@ -1,7 +1,7 @@
 - 👋 Hi, I’m 𝐒𝐫𝐢𝐦𝐚𝐭𝐡𝐢 𝐒✨
 - 👀 I’m interested in Web development!
 - 🌱 I’m currently learning how to deal with new technology!
-- 💞️ I’m looking to collaborate on Data Science.
+- 💞️ I’m looking to collaborate on Cloud Computing.
 - ✨ I love drawing
 
 𝕮𝖔𝖓𝖓𝖊𝖈𝖙 𝖜𝖎𝖙𝖍 𝖒𝖊:
