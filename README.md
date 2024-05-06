@@ -1,5 +1,5 @@
 - 👋 Hi, I’m 𝐒𝐫𝐢𝐦𝐚𝐭𝐡𝐢 𝐒✨
-- 👀 I’m interested in Web development!
+- 👀 I’m interested in DevOps Engineer Role!
 - 🌱 I’m currently learning how to deal with new technology!
 - 💞️ I’m looking to collaborate on Cloud Computing.
 - ✨ I love drawing
