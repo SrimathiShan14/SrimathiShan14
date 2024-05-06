@@ -8,7 +8,7 @@
 
 🔗https://t.me/Srimathi14
 
-🔗https://www.linkedin.com/in/srimathi-s-0262ba1b4/
+🔗https://www.linkedin.com/in/srimathi-shanmugam/
 
 𝕷𝖆𝖓𝖌𝖚𝖆𝖌𝖊𝖘 𝕶𝖓𝖔𝖜𝖓:
 
