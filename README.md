@@ -8,8 +8,6 @@
 
 🔗https://t.me/Srimathi14
 
-🔗https://www.linkedin.com/in/srimathi-shanmugam/
-
 𝕷𝖆𝖓𝖌𝖚𝖆𝖌𝖊𝖘 𝕶𝖓𝖔𝖜𝖓:
 
 🔖 Programming C | Java | HTML | CSS | JavaScript | Aws(Basics) | Node JS | GCP | Terraform |Ansible | Jenkins | Bash | Groovy | Networking | MongoDB
